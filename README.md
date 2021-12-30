@@ -1,2 +1,2 @@
 # git-iti
-![alt text](https://twitter.com/isimo_/status/948322347819335681/photo/1)
+![alt text](https://pbs.twimg.com/media/DSkeJMKWAAIAdQ_?format=jpg&name=small)
